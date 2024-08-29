@@ -1,9 +1,9 @@
-Votez hu fang, ingénieur en structures.
-2024 election 
-Urgence pour la justice,
-Modifier code criminel et une législation de code civil fédéral basé sur un système de moralité cohérente selon expertise en santé et  modifier act des juges pour l'impartialité des juges et faciliter les litiges par les citoyens contre les gouvernements. 
-To legislate an Canadian written languages act :
-Written simplified Chinese shall be official written language in Canada, while English and French are still valid written phonetic languages in Canada.
+**Votez hu fang, ingénieur en structures.**
+**2024 election** 
+**Urgence pour la justice,**
+**Modifier code criminel et une législation de code civil fédéral basé sur un système de moralité cohérente selon expertise en santé et  modifier act des juges pour l'impartialité des juges et faciliter les litiges par les citoyens contre les gouvernements.** 
+**To legislate an Canadian written languages act :**
+**Written simplified Chinese shall be official written language in Canada, while English and French are still valid written phonetic languages in Canada.**
 
 Vote hu fang, engineer on structures, 
 我是胡昉工程師源自胡雪岩家族，hu fang 

@@ -8,7 +8,7 @@ Vote hu fang, engineer on structures,
 Lasalle emard Verdun 选區2024 九月九日，
 拜托所有中日韓越南華僑助选，为加拿大完善司法公正,
 Free Party Canada, 
-
+https://partilibrecanada.org/program/
 For justice and protection of Canadians free from phobias and free from all forms of abuse by the governments of Canada by modification of the criminal code and legislation of a civil code of Canada based on a coherent moral system as per experts on mental health. 
 Discipline judges in Canada for impartiality.
 

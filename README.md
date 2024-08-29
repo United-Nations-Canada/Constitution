@@ -11,7 +11,7 @@ Free Party Canada,
 https://partilibrecanada.org/program/
 For justice and protection of Canadians free from phobias and free from all forms of abuse by the governments of Canada by modification of the criminal code and legislation of a civil code of Canada based on a coherent moral system as per experts on mental health. 
 Discipline judges in Canada for impartiality.
-
+https://partilibrecanada.org/fr/programme/
 Spoken languages are the same as existing 2,
 French and English, while written languages are 3,
 Simplified Chinese and French and English.

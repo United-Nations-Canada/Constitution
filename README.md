@@ -22,7 +22,8 @@ Spoken languages are the same as existing 2,
 French and English, while written languages are 3,
 Simplified Chinese and French and English.
 Such practice is well established in Japan where Han Chinese writings are fonctional well.
---------------
+-------
+canada exists since 1982-------
 orientation for canadians - orientation pour tous les canadiens.
 constitution base of canada
 the true history of pre-canada

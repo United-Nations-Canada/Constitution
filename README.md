@@ -39,3 +39,11 @@ about 98% judges in canada willfully excluded chinese canadians and their facts 
 the only ecological solution is to use written chinese as the third written language in canada,
 candidat by-election 2024: engineer Hu, ingenieur , civl engineering - structures
 telephone : 1 450 525 5789
+
+Chères canadiens,  dear Canadians :
+Ici 1497-1680, vrai histoire de pré Canada nous sont encore inconnus due la brainwashing par les anglo-saxonne et francophone du Québec et Canada, Laurier, traître qui en effet du fait, la cause principale de guerres mondiales. 
+Grâce à ingénieur hu, vrai histoire de pré Canada est selon université 3 rivières et université Laval etc. 
+Que le respect des cultures chinoises 明末清初，est indispensable. 
+Otherwise, chinese remmigration  1780 - 1923, would continue the glory of 1497 - 1680 Chinese civilization in pré-Canada, if anyone wish to exclude oriental civilization in Canada, let him go back to the 1680 - 1780 exclusion of Chinese oriental civilization in pre-canada history since the Vancouver Mckenzie were the start of narrow mind of British system, 
+We for mindfulness and mental health of Canadians, on doit déclarer que la civilisation chinoise orientale est la base ici. 
+Tous les juges au suprême court de Canada sont voluntairement ignorants.

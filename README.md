@@ -5,7 +5,7 @@
 
 **Urgence pour la justice,**
 
-**droit de'habitation a etre legislate = canada land value act = pour limiter les valeurs de terrains pour que tous les canadiens seront capable a acces des prix raisonables ..
+**droit de'habitation a etre legislate = Canada Land Value Act = pour limiter les valeurs de terrains pour que tous les canadiens seront capable a acces des prix raisonables ..
 ordinary canadians no need to pay or pay less for those land that poluted by the abuse in 1790 king of canada treaty lands.
 wherever there are police brutality and systematic discrimination, those land in lasalle emard verdun shall be of limited and reduced value for you to buy properties for your first house - maison...**
 

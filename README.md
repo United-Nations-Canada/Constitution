@@ -1,15 +1,15 @@
 ![image](https://github.com/United-Nations-Canada/2024-canada-federal-by-election/blob/main/01.jpg) 
 
 **Votez hu fang, ingénieur en structures.**
-**2024 election** 
+**2025 municipal election municipale** 
 
-**Urgence pour la justice,**
+**Urgence pour la justice municipale,**
 
-**droit de'habitation a etre legislate = CANADA LAND VALUE ACT = pour limiter les valeurs de terrains pour que tous les canadiens seront capable a acces des prix raisonables ..
+**droit de'habitation a etre legislate =  LAND VALUE ACT = pour limiter les valeurs de terrains pour que tous seront capable a acces des prix raisonables ..
 ordinary canadians no need to pay or pay less for those land that poluted by the abuse in 1790 king of canada treaty lands.
 wherever there are police brutality and systematic discrimination, those land in lasalle emard verdun shall be of limited and reduced value for you to buy properties for your first house - maison...**
 
-**Modifier code criminel et une législation de code civil fédéral basé sur un système de moralité cohérente selon expertise en santé et  modifier act des juges pour l'impartialité des juges et faciliter les litiges par les citoyens contre les gouvernements.** 
+**Modifier by law - code penal  en vandalism et une législation de code civil fédéral basé sur un système de moralité cohérente selon expertise en santé et  modifier act des juges pour l'impartialité des juges et faciliter les litiges par les citoyens contre les gouvernements.** 
 **To legislate an Canadian written languages act :**
 **Written simplified Chinese shall be official written language in Canada, while English and French are still valid written phonetic languages in Canada.**
 

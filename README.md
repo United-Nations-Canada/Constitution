@@ -15,7 +15,7 @@ wherever there are police brutality and systematic discrimination, those land in
 
 Vote hu fang, engineer on structures, 
 我是胡昉工程師源自胡雪岩家族，hu fang 
-Lasalle emard Verdun 选區2024 九月九日，
+Lasalle emard Verdun 选區2025 Oct.月，
 
 拜托所有中日韓越南華僑助选，为加拿大完善司法公正,
 ..

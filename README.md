@@ -5,7 +5,9 @@
 
 **Urgence pour la justice municipale,
 STM service  on a des reserves de STLongueuil   STLaval en cas ou STM greve strike we will  have reserve contracts from on call team from Laval et Longueuil;
+chaque metro station de STM , toilets pour  publics usage publiq. access pour public., 
 
+the montain is yours, not belong to any king,
 justice pour vous et emplois pour citoyens 
 
 Olympiq. sites a Lasalle Lachine  future projects in lasalle lachine**

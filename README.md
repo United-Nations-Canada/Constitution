@@ -1,9 +1,14 @@
 ![image](https://github.com/United-Nations-Canada/2024-canada-federal-by-election/blob/main/01.jpg) 
 
-**Votez hu fang, ingénieur en structures.**
+**Votez Hu fang, ingénieur en structures.**
 **2025 municipal election municipale** 
 
-**Urgence pour la justice municipale,**
+**Urgence pour la justice municipale,
+STM service  on a des reserves de STLongueuil   STLaval en cas ou STM greve strike we will  have reserve contracts from on call team from Laval et Longueuil;
+
+justice pour vous et emplois pour citoyens 
+
+Olympiq. sites a Lasalle Lachine  future projects in lasalle lachine**
 
 **droit de'habitation a etre legislate =  LAND VALUE ACT = pour limiter les valeurs de terrains pour que tous seront capable a acces des prix raisonables ..
 ordinary canadians no need to pay or pay less for those land that poluted by the abuse in 1790 king of canada treaty lands.

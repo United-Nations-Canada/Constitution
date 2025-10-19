@@ -48,6 +48,7 @@ CHAQUE ENFANT PEUT APPRENDRE ECRITURE-CHINOIS ICI A MONTREAL LASALLE LACHINE ! S
 DPCP ET PROCUREURS MUNICIPALS WILL CHARGE AND DENOUNCE CONTRE DPJ.
 
 https://www.facebook.com/profile.php?id=100069283956604
+
 canada as a nation FOR REAL exists since 1981-------
 orientation for CITIZENS, canadians - orientation pour tous les canadiens.
 constitution base of canada = the true history of pre-canada

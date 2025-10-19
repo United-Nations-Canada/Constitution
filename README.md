@@ -38,6 +38,7 @@ Such practice is well established in Japan where Han Chinese writings are foncti
 
 French and English are only useful for Olympiq. games and sports events and tourism, so let us build future sites in lasalleLachine.
 
+On va preparer les bureax pour NU, 
 we offer sites for UNESCO of United Nations offices.
 ------
 canada exists since 1981-------

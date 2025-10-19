@@ -4,41 +4,39 @@
 **2025 municipal election municipale** 
 
 **Urgence pour la justice municipale,
-STM service  on a des reserves de STLongueuil   STLaval en cas ou STM greve strike we will  have reserve contracts from on call team from Laval et Longueuil;
-chaque metro station de STM , toilets pour  publics usage publiq. access pour public., 
-
-the montain is yours, not belong to any king,
+STM service  on a des reserves de STLongueuil et  STLaval en cas ou STM greve strike we will  have reserve contracts from on-call team from Laval et Longueuil, out-resources to and from LAval Longueuil teams;
+chaque metro station de STM, on aura toilets pour publics usage publiq. access pour public., 
+Montreal
+the montain is yours, not belong to any king, neither British King nor roi Francais, c'est à nous, citoyens! on va re-baptiser pour le nom de la ville ensemble comme
+LaSalleLachine,
 justice pour vous et emplois pour citoyens 
-
 Olympiq. sites a Lasalle Lachine  future projects in lasalle lachine**
+such generate employment and business for all citizens of Montreal now and both winter and summer Olympiq. games sports events for you.
 
-**droit de'habitation a etre legislate =  LAND VALUE ACT = pour limiter les valeurs de terrains pour que tous seront capable a acces des prix raisonables ..
+**droit de'habitation a etre legislate = reglement municipal LAND VALUE BYLAW ACT = pour limiter les valeurs de terrains pour que tous seront capable a acces des prix raisonables ..
 ordinary canadians no need to pay or pay less for those land that poluted by the abuse in 1790 king of canada treaty lands.
 wherever there are police brutality and systematic discrimination, those land in lasalle emard verdun shall be of limited and reduced value for you to buy properties for your first house - maison...**
 
-**Modifier by law - code penal  en vandalism et une législation de code civil fédéral basé sur un système de moralité cohérente selon expertise en santé et  modifier act des juges pour l'impartialité des juges et faciliter les litiges par les citoyens contre les gouvernements.** 
-**To legislate an Canadian written languages act :**
-**Written simplified Chinese shall be official written language in Canada, while English and French are still valid written phonetic languages in Canada.**
+**Modifier by-law - penal  en vandalism et une législation de city by-law code basé sur un système de moralité cohérente selon expertise en santé et  modifier act des juges pour l'impartialité des juges et faciliter les litiges par les citoyens contre les gouvernements.** 
+**To legislate a city by law on logo act based on psycology et écology :**
+**Written simplified Chinese shall be official logo scripture-language here, while English and French are still valid written phonetic languages in Canada.**
 
 Vote hu fang, engineer on structures, 
 我是胡昉工程師源自胡雪岩家族，hu fang 
-Lasalle emard Verdun 选區2025 Oct.月，
+all over Montreal 选區2025 Oct.- November 月，
 
-拜托所有中日韓越南華僑助选，为加拿大完善司法公正,
+拜托所有中日韓越南華僑 etc. 助选，为加拿大完善司法公正,
 ..
-......
-
-For justice and protection of Canadians free from phobias and free from all forms of abuse by the governments of Canada by modification of the criminal code and legislation of a civil code of Canada based on a coherent moral system as per experts on mental health. 
-Discipline judges in Canada for impartiality.
+...reglement  municipal  legislation...
+For justice and protection of Canadians free from phobias and free from all forms of abuse by the governments of Canada by modification of the penal city by law  code and legislation of a penal reglement municipal code in Canada based on a coherent moral system as per experts on mental health et écology. 
+Disciplinez les judges in Montreal for impartiality.
 ....
 Spoken languages are the same as existing 2,
-French and English, while written languages are 3,
+French and English, while written scripture shall be écological and for human psycology,
 Simplified Chinese and French and English.
 Such practice is well established in Japan where Han Chinese writings are fonctional well.
--------
-![image](https://github.com/United-Nations-Canada/2024-canada-federal-by-election/blob/main/03.jpg) 
-
-canada exists since 1982-------
+------
+canada exists since 1981-------
 orientation for canadians - orientation pour tous les canadiens.
 constitution base of canada
 the true history of pre-canada

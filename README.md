@@ -36,7 +36,7 @@ French and English, while written languages are 3,
 Simplified Chinese and French and English.
 Such practice is well established in Japan where Han Chinese writings are fonctional well.
 -------
-![image](https://github.com/United-Nations-Canada/2024-canada-federal-by-election/blob/main/02.jpg) 
+![image](https://github.com/United-Nations-Canada/2024-canada-federal-by-election/blob/main/03.jpg) 
 
 canada exists since 1982-------
 orientation for canadians - orientation pour tous les canadiens.

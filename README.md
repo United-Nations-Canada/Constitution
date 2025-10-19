@@ -44,6 +44,11 @@ https://www.unesco.org/en/articles/peng-liyuan-named-unesco-special-envoy-advanc
 ------
 https://www.lesoleil.com/communiques-de-presse/2025/09/21/cgtn-peng-liyuan-sen-remet-au-girl-power-ou-lappel-de-la-premiere-dame-de-chine-a-lautonomie-feminine-par-leducation-scientifique-GVOLQJFSNNCX3APYNW7FSWEEYU/
 
+https://news.cgtn.com/news/2025-09-20/Peng-Liyuan-calls-to-empower-women-with-science-education-1GORJugaKwo/p.html
+we want UNESCO to hear EVERY CHILD MATTERS EVERY DAY IN MONTREAL CANADA NOT JUST ONCE A YEAR THE END OF SEPTEMBRE!
+CHAQUE ENFANT PEUT APPRENDRE ECRITURE-CHINOIS ICI A MONTREAL LASALLE LACHINE ! SI DPJ ABUSE, SPVM VA ARRETER DPJ !
+DPCP ET PROCUREURS MUNICIPALS WILL CHARGE AND DENOUNCE CONTRE DPJ.
+
 https://www.facebook.com/profile.php?id=100069283956604
 
 canada as a nation exists since 1981-------

@@ -51,17 +51,17 @@ DPCP ET PROCUREURS MUNICIPALS WILL CHARGE AND DENOUNCE CONTRE DPJ.
 
 https://www.facebook.com/profile.php?id=100069283956604
 
-canada as a nation exists since 1981-------
-orientation for canadians - orientation pour tous les canadiens.
+canada as a nation FOR REAL exists since 1981-------
+orientation for CITIZENS, canadians - orientation pour tous les canadiens.
 constitution base of canada
 the true history of pre-canada
 vrai histoire du pre- canada:Chinese civilization existed since 1497 in the mind of Giovn John Caboto and physically on the Nicholet about 1580 in pre-canada;
-there is no God but Allah; there is no written language but ancient Chinese writting !
+there is no God but Allah; there is no USEFUL written SCRIPTURE but Chinese writting FOR ALL KIDS TO LEARN , TO USE FOR MENTAL HEALTH FOR ALL !
 the nature of oriented human beings (including non orientals ) is good; 
-selon les etudes profondes , according to researches, the exclusion of chinese since 1923 or since 1700 in canada caused all the world wars,
-about 98% judges in canada willfully excluded chinese canadians and their facts and their social context and circumstances, such caused willful errors by judges in canada;
-the only ecological solution is to use written chinese as the third written language in canada,
-candidat by-election 2024: engineer Hu, ingenieur , civl engineering - structures
+selon les etudes profondes , according to researches, the exclusion of chinese since 1923 or since 1700 in canada caused all the world wars, OCCIDENTAL MENTALITÉ IS BASED ON CONFLICTS, DISCONNECTED OFF AWAY FROM HUMAN NATURE IN GOD,
+about 98% judges in canada willfully excluded EQUAL chinese canadians and their facts and their social context and circumstances, such caused willful errors by judges in canada;
+the only ecological solution is to use written chinese as LOGO SIGNS IN MONTREAL AND the third written language in canada AS JAPAN DOES,
+candidat MUNICIPAL election 2025: engineer Hu, ingenieur , civl engineering - structures
 telephone : 1 450 525 5789
 
 Chères canadiens,  dear Canadians :

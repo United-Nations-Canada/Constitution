@@ -61,6 +61,7 @@ the only ecological solution is to use written chinese as LOGO SIGNS IN MONTREAL
 
 candidat MUNICIPAL election 2025: engineer Hu, ingenieur , civl engineering - structures
 telephone : 1 450 525 5789
+
 Chères canadiens,  dear Canadians :
 Ici 1497-1680, vrai histoire de pré Canada nous sont encore inconnus due la brainwashing par les anglo-saxonne et francophone du Québec et Canada, Laurier, traître qui en effet du fait, la cause principale de guerres mondiales. 
 Grâce à ingénieur Hu, vrai histoire de pré-Canada est selon université 3-rivières et université Laval etc. 

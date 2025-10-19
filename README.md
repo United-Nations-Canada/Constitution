@@ -1,6 +1,5 @@
 ![image](https://github.com/United-Nations-Canada/2024-canada-federal-by-election/blob/main/01.jpg) 
-**Votez Hu fang, 
-ingénieur en structures.**
+**Votez Hu fang, ingénieur en structures.**
 **2025 municipal election municipale** 
 
 ex-maire jean drapeau had resources connections from France- Paris, we have our friendship city =Shanghai, Chine, ex-mayor Pierre Bourque started such .. we continue in LaSalleLachine, indeed, Lasalle had started, on va continuer.. 

@@ -42,8 +42,9 @@ On va preparer les bureax pour NU,
 we offer sites for UNESCO of United Nations offices.
 https://www.unesco.org/en/articles/peng-liyuan-named-unesco-special-envoy-advancement-girls-and-womens-education
 ------
-https://www.facebook.com/profile.php?id=100069283956604
+https://www.lesoleil.com/communiques-de-presse/2025/09/21/cgtn-peng-liyuan-sen-remet-au-girl-power-ou-lappel-de-la-premiere-dame-de-chine-a-lautonomie-feminine-par-leducation-scientifique-GVOLQJFSNNCX3APYNW7FSWEEYU/
 
+https://www.facebook.com/profile.php?id=100069283956604
 
 canada as a nation exists since 1981-------
 orientation for canadians - orientation pour tous les canadiens.

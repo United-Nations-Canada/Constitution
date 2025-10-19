@@ -40,6 +40,7 @@ French and English are only useful for Olympiq. games and sports events and tour
 
 On va preparer les bureax pour NU, 
 we offer sites for UNESCO of United Nations offices.
+https://www.unesco.org/en/articles/peng-liyuan-named-unesco-special-envoy-advancement-girls-and-womens-education
 ------
 canada exists since 1981-------
 orientation for canadians - orientation pour tous les canadiens.

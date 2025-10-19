@@ -37,6 +37,7 @@ French and English, while written scripture shall be écological and for human p
 Simplified Chinese is more écological and human than French and English.
 Such practice is well established in Japan where Han Chinese writings are fonctional well.
 French and English are only useful for Olympiq. games and sports events and tourism, so let us build future sites in lasalleLachine.
+
 On va preparer les bureax pour NU, 
 we offer sites for UNESCO of United Nations offices.
 https://www.unesco.org/en/articles/peng-liyuan-named-unesco-special-envoy-advancement-girls-and-womens-education

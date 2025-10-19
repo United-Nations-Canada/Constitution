@@ -4,7 +4,7 @@
 **2025 municipal election municipale** 
 'LasalleLachine' the future name for montreal signifie 'esprit de communication onto avec civilisation that had inspired Cartier and Champlain';
 
-ex-maire jean drapeau had resources connections from France- Paris, we have our friendship city =Shanghai, Chine, ex-mayor Pierre Bourque started such .. we continue in LaSalleLachine, indeed, Lasalle had started, on va continuer.. 
+ex-maire jean drapeau had resources connections from France- Paris, we have our Montreal's friendship city =Shanghai, Chine, ex-mayor Pierre Bourque started such .. we continue in LaSalleLachine, indeed, Lasalle had started, on va continuer.. 
 
 **Urgence pour la justice municipale,
 STM service  on a des reserves de STLongueuil et  STLaval en cas ou STM greve strike we will  have reserve contracts from on-call team from Laval et Longueuil, out-resources to and from LAval Longueuil teams;

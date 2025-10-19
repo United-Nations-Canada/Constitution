@@ -42,7 +42,10 @@ On va preparer les bureax pour NU,
 we offer sites for UNESCO of United Nations offices.
 https://www.unesco.org/en/articles/peng-liyuan-named-unesco-special-envoy-advancement-girls-and-womens-education
 ------
-canada exists since 1981-------
+https://www.facebook.com/profile.php?id=100069283956604
+
+
+canada as a nation exists since 1981-------
 orientation for canadians - orientation pour tous les canadiens.
 constitution base of canada
 the true history of pre-canada

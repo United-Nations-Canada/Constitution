@@ -61,13 +61,15 @@ the nature of oriented human beings (including non orientals ) is good;
 selon les etudes profondes , according to researches, the exclusion of chinese since 1923 or since 1700 in canada caused all the world wars, OCCIDENTAL MENTALITÉ IS BASED ON CONFLICTS, DISCONNECTED OFF AWAY FROM HUMAN NATURE IN GOD,
 about 98% judges in canada willfully excluded EQUAL chinese canadians and their facts and their social context and circumstances, such caused willful errors by judges in canada;
 the only ecological solution is to use written chinese as LOGO SIGNS IN MONTREAL AND the third written language in canada AS JAPAN DOES,
+
 candidat MUNICIPAL election 2025: engineer Hu, ingenieur , civl engineering - structures
 telephone : 1 450 525 5789
 
 Chères canadiens,  dear Canadians :
 Ici 1497-1680, vrai histoire de pré Canada nous sont encore inconnus due la brainwashing par les anglo-saxonne et francophone du Québec et Canada, Laurier, traître qui en effet du fait, la cause principale de guerres mondiales. 
-Grâce à ingénieur hu, vrai histoire de pré Canada est selon université 3 rivières et université Laval etc. 
-Que le respect des cultures chinoises 明末清初，est indispensable. 
-Otherwise, chinese remmigration  1780 - 1923, would continue the glory of 1497 - 1680 Chinese civilization in pré-Canada, if anyone wish to exclude oriental civilization in Canada, let him go back to the 1680 - 1780 exclusion of Chinese oriental civilization in pre-canada history since the Vancouver Mckenzie were the start of narrow mind of British system, 
-We for mindfulness and mental health of Canadians, on doit déclarer que la civilisation chinoise orientale est la base ici. 
-Tous les juges au suprême court de Canada sont voluntairement ignorants.
+Grâce à ingénieur Hu, vrai histoire de pré-Canada est selon université 3-rivières et université Laval etc. 
+Que le respect de LA CIVILISATION chinoises 明末清初，est indispensable. 
+Otherwise, chinese remmigration  1780 - 1923, would continue the glory of 1497 - 1680 Chinese civilization in pré-Canada, if anyone wish to exclude oriental civilization in Canada, let him go back to the 1680 - 1780 exclusion of Chinese oriental civilization in pre-canada history since the Vancouver Mckenzie were the start of TOXIC MENTALITÉ of British system, 
+We for mindfulness and mental health of Canadians, on doit déclarer que la civilisation chinoise orientale est la base ici 1497-1680, 1780-2025 ... 
+Tous les juges au suprême court de Canada sont voluntairement ignorants PAR PRE-MÉDITATIONS, C'EST LA VRAI CAUSE DE tragédies de enfant 3 ans de lasalle, Bell was abused by her crazy mother and the DPJ in Montreal, police and prosecution will put DYP before juges in Municipal court of montreal once i am élu as the Mayor of Montreal..
+i will accomplish what those former mayors had not achieved .....

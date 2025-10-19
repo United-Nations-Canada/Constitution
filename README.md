@@ -1,7 +1,8 @@
 ![image](https://github.com/United-Nations-Canada/2024-canada-federal-by-election/blob/main/01.jpg) 
+
 **Votez Hu fang, ingénieur en structures.**
 **2025 municipal election municipale** 
-
+'LasalleLachine' the future name for montreal signifie 'esprit de communication onto avec civilisation that had inspired Cartier and Champlain';
 ex-maire jean drapeau had resources connections from France- Paris, we have our friendship city =Shanghai, Chine, ex-mayor Pierre Bourque started such .. we continue in LaSalleLachine, indeed, Lasalle had started, on va continuer.. 
 **Urgence pour la justice municipale,
 STM service  on a des reserves de STLongueuil et  STLaval en cas ou STM greve strike we will  have reserve contracts from on-call team from Laval et Longueuil, out-resources to and from LAval Longueuil teams;
@@ -49,14 +50,14 @@ DPCP ET PROCUREURS MUNICIPALS WILL CHARGE AND DENOUNCE CONTRE DPJ.
 https://www.facebook.com/profile.php?id=100069283956604
 canada as a nation FOR REAL exists since 1981-------
 orientation for CITIZENS, canadians - orientation pour tous les canadiens.
-constitution base of canada
-the true history of pre-canada
+constitution base of canada = the true history of pre-canada
 vrai histoire du pre- canada:Chinese civilization existed since 1497 in the mind of Giovn John Caboto and physically on the Nicholet about 1580 in pre-canada;
 there is no God but Allah; there is no USEFUL written SCRIPTURE but Chinese writting FOR ALL KIDS TO LEARN , TO USE FOR MENTAL HEALTH FOR ALL !
 the nature of oriented human beings (including non orientals ) is good; 
 selon les etudes profondes , according to researches, the exclusion of chinese since 1923 or since 1700 in canada caused all the world wars, OCCIDENTAL MENTALITÉ IS BASED ON CONFLICTS, DISCONNECTED OFF AWAY FROM HUMAN NATURE IN GOD,
 about 98% judges in canada willfully excluded EQUAL chinese canadians and their facts and their social context and circumstances, such caused willful errors by judges in canada;
 the only ecological solution is to use written chinese as LOGO SIGNS IN MONTREAL AND the third written language in canada AS JAPAN DOES,
+
 candidat MUNICIPAL election 2025: engineer Hu, ingenieur , civl engineering - structures
 telephone : 1 450 525 5789
 Chères canadiens,  dear Canadians :
